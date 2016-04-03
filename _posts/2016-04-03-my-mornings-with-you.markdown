@@ -1,6 +1,6 @@
 ---
 published: true
-title: My Mornings and my nights
+title: My mornings with you
 layout: post
 ---
 It’s 6 am and i want to be lying next to you
