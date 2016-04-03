@@ -11,10 +11,10 @@ You made it warm <br>
 You made it ours <br>
 I loved you <br>
 <br>
-Now you want dont me to leave <br>
+Now you dont want me to leave <br>
 But it's empty <br>
 But, I don’t want it to be empty <br>
 I don’t want it without you <br>
 I need you <br>
-for rest of my life <br>
+For rest of my life <br>
 For rest of our life <br>
