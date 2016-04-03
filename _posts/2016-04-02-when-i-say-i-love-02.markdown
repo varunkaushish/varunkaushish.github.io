@@ -1,4 +1,3 @@
-
 ---
 published: true
 title: I love the way
